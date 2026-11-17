@@ -1,0 +1,6 @@
+DỰ ÁN CÁ NHÂN
+HỌ VÀ TÊN: VŨ TRƯỜNG GIANG
+ĐẠI HỌC BÁCH KHOA HÀ NỘI
+MSSV: 202616017
+KHOA: TỰ ĐỘNG HÓA
+LỚP: EE2-11
